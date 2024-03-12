@@ -3,7 +3,7 @@
 ### 1. Mark Ang
 #### 11:00AM - 3:00PM
 ##### (attended CCINFOM class)
-### 2. Angello Quinones
+### 2. Angelo Quiñones
 #### 9:15AM - 4:00PM
 ### 3. Alroy Reyes
 #### 9:15AM - 11:15AM
@@ -18,7 +18,7 @@
 ## Day 2 
 ### 1. Mark Ang
 #### 11:00AM - 2:00PM
-### 2. Angello Quinones
+### 2. Angelo Quiñones
 #### 9:15AM - 3:00PM
 ### 3. Alroy Reyes
 #### 9:15AM - 3:00PM
